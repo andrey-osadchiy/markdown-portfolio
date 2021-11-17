@@ -2,7 +2,7 @@
 2.  🎵 
 3. 🎼 
 
-* hey boys
-* hey girls
+* hey *boys*
+* hey _girls_)
 * superstar dj
-* hey you go!
+* *hey you go!*
