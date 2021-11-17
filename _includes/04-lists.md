@@ -2,7 +2,7 @@
 2.  🎵 
 3. 🎼 
 
-* hey *boys*
-* hey _girls_)
-* superstar dj
-* _Here **you** go!_
+* 1 *A*
+* B _B_)
+* c
+* _D**EF** g_
